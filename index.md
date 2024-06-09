@@ -1,5 +1,7 @@
-Here you can say lots of fun things about your site.
+Currently working in information secury, i enjoy gaming and programming at home.
 
-Maybe say a some things about yourself.
+This will be a collection of my learning, projects and things i find interesting in general.
 
-Or maybe what you plan to blog about.
+In the future this may become my personal portfolio but we'll see if we get to that point.
+
+
